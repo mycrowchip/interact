@@ -3,6 +3,6 @@ currently hyperfixated on supernatural but i am in the fandoms listed below *bol
 - **inanimate insanity**
 - dexter
 - forsaken
-- dandys world (fandom dniuf, i'm not in it)
+- dandys world (fandom iwec, i'm not in it)
 - nico's nextbots
 and many others unlisted
